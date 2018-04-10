@@ -1,2 +1,3 @@
 # SweetYuriRepository
-Just a yuri repository.
+
+Let me do sth AMAZING!!
